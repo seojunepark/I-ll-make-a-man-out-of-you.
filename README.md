@@ -12,3 +12,13 @@ Tranquil as a forest
 But on fire within
 Once you find your center
 You are sure to win
+
+You're a spineless, pale, pathetic lot
+And you haven't got a clue
+Somehow I'll make a man out of you
+I'm never gonna catch my breath!
+Say goodbye to those who knew me!
+Boy, was I a fool in school for cutting gym?
+This guy got 'em scared to death!
+Hope he doesn't see right through me!
+Now I really wish that I knew how to swim!
